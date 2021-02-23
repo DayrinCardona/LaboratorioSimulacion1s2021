@@ -1,2 +1,2 @@
-# LaboratorioSimulacion1s2021
+# Laboratorio Simulacion 1s 2021
 Dayrin Idalia Cardona Crúz
